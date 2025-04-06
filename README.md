@@ -1,1 +1,0 @@
-# bluestack-fintech
